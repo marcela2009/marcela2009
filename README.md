@@ -1,6 +1,6 @@
 - 👋 Oi, sou @marcela2009
 - 👀 Estou interessada em focar nos meus estudos
-- 🌱 Atualmente pensamento computacional
+- 🌱 Atualmente estou aprendendo pensamento computacional
 - 💞️ Procuro colaborar com o mundo
 - 📫 Entre em contato comigo pelo meu e-mail
 - 😄 Pronouns: ela/dela
